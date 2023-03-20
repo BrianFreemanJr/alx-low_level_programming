@@ -7,6 +7,6 @@
 * What are the differences between static and shared libraries.
 * Basic usage nm, ldd, ldconfig.
 
-Omo!Can't exactly figure out what to write in here sef but you should know that this low level programming's not been easy o, e don carry me go low very well but what to do na? Na me want earnin dollars working from Nigeria very soon na, so i gats put body and even you too. on God 100%
+Omo!Can't exactly figure out what to write in here sef but you should know that this low level programming's not been easy o, e don carry me go low very well but what to do na? Na me want earn in dollars working from Nigeria very soon na, so i gats put body and even you too. on God 100%
 
 WE CAN DO HARD THINGS
